@@ -5,7 +5,7 @@
 
 
 
-S 𝓐S𝓞 R𝐼 n𝒪 𓂃 𝒟 A𝒩N𝒜 ♡ ⸝⸝⸝  ！❜
+S 𝓐S𝓞 R𝐼 N𝒪 𝒟 A𝒩N𝒜 ♡ ⸝⸝⸝  ！
 
 ![hasahha](https://github.com/user-attachments/assets/88b334a2-5dcc-4d48-8331-fdbfe6c70a9e)
 
