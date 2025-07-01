@@ -9,6 +9,11 @@
 
 
 
+pfp credit to [qwerl](https://x.com/___qwerl____?s=21)
+
+
+
+
 <img width="590" src="https://github.com/user-attachments/assets/91f247cd-2d65-4b1b-9b15-475a954e104e"/>
 
 
