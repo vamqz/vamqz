@@ -1,7 +1,5 @@
 <div align="center">
-<img src="https://komarev.com/ghpvc/?username=vamqz&color=801A1F&style=plastic&label=ㅤhi&base=0"> 
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31p7k4lkdecbilvh5rthmgvkujm4&cover_image=true&theme=novatorem&show_offline=true&background_color=801a1f&interchange=true&bar_color_cover=false&bar_color=801a1f)](https://spotify-github-profile.kittinanx.com/api/view?uid=31p7k4lkdecbilvh5rthmgvkujm4&redirect=true)
+<img src="https://komarev.com/ghpvc/?username=vamqz&color=801A1F&style=plastic&label=ㅤhi&base=0">
 
 
 ![IMG_5241](https://github.com/user-attachments/assets/c8b2ce2a-e9e0-48ac-b931-e64daa82b147)
@@ -36,3 +34,4 @@ pfp credit to [qwerl](https://x.com/___qwerl____?s=21)
 
 
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31p7k4lkdecbilvh5rthmgvkujm4&cover_image=true&theme=novatorem&show_offline=true&background_color=801a1f&interchange=true&bar_color_cover=false&bar_color=801a1f)](https://spotify-github-profile.kittinanx.com/api/view?uid=31p7k4lkdecbilvh5rthmgvkujm4&redirect=true)
