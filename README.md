@@ -18,7 +18,7 @@ pfp credit to [qwerl](https://x.com/___qwerl____?s=21)
 
 
 
-<img width="590" src="https://github.com/user-attachments/assets/f465a97d-eeb8-40d0-9aef-5f8210c8d7ab"/>
+<img width="590" src="https://github.com/user-attachments/assets/81078591-a091-4f4e-bb4f-c37c0edb5722"/>
 
  
  
