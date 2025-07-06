@@ -1,5 +1,5 @@
 <div align="center">
-<img src="https://komarev.com/ghpvc/?username=vamqz&color=801A1F&style=plastic&label=ㅤhi&base=0">
+<img src="https://komarev.com/ghpvc/?username=vamqz&color=801A1F&style=plastic&label=ㅤstalkers&base=0">
 
 
 ![IMG_5241](https://github.com/user-attachments/assets/c8b2ce2a-e9e0-48ac-b931-e64daa82b147)
