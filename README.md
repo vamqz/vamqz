@@ -4,7 +4,7 @@
 ⠀⠀
 ⠀⠀
 
-⠀⠀⠀⠀⠀no idea why yall following but thank you so much pookies ^_^
+no idea why yall following but thank you so much pookies ^_^
 ⠀⠀⠀⠀
 
 
