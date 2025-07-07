@@ -1,10 +1,10 @@
 <div align="center">
 <img src="https://komarev.com/ghpvc/?username=vamqz&color=000000&style=plastic&label=ㅤstalkers&base=0">
 
+⠀⠀
+⠀⠀
 
-
-
-   
+⠀⠀⠀⠀⠀⠀no idea why yall following but thank you so much
 ⠀⠀⠀⠀
 
 
