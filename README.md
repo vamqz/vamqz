@@ -4,7 +4,8 @@
 ⠀⠀
 ⠀⠀
 
-⠀⠀⠀⠀⠀yare yare.. no idea why yall following but thanks
+yare yare.. no idea why yall following but thanks
+
 ⠀⠀⠀⠀
 
 
@@ -21,12 +22,12 @@
 
 
 
-![IMG_5673](https://github.com/user-attachments/assets/170e7444-07f9-4255-85c0-88040daf0f05)[Uploading IMG_5679.webp…]()![IMG_5242](https://github.com/user-attachments/assets/b7e5ef36-b7f7-4de7-ac68-6581858c9ddd)
+![IMG_5673](https://github.com/user-attachments/assets/170e7444-07f9-4255-85c0-88040daf0f05)![IMG_5680](https://github.com/user-attachments/assets/31000b6e-5434-4105-9dfd-a23b49a3cef3)![IMG_5681](https://github.com/user-attachments/assets/b422f04c-0cc1-4002-b3c8-24a8d06984ba)
 
 
 
 
-![IMG_5477](https://github.com/user-attachments/assets/c0d3abf8-994c-4f77-a367-b63448ab135b)[straw](https://kira4.straw.page)![IMG_5479](https://github.com/user-attachments/assets/0e0b4e5a-d274-4aa8-8dc3-e42500c2f87b)[crrd](https://adm1rree.carrd.co/?)![IMG_5238](https://github.com/user-attachments/assets/b368cdfa-a351-48f3-a809-e6d3fbdb933c)[guns](https://guns.lol/vamqz)![IMG_5483](https://github.com/user-attachments/assets/4c146495-840c-40d0-bb83-bacad09cf622)
+![IMG_5684](https://github.com/user-attachments/assets/72577599-9fa4-49a6-ad25-22f994a88a48)[straw](https://kira4.straw.page)![IMG_5683](https://github.com/user-attachments/assets/9641dd4d-305c-49b9-9541-902143d54c2a)[crrd](https://adm1rree.carrd.co/?)![IMG_5685](https://github.com/user-attachments/assets/d52917d5-00fb-4a10-8aaa-fe947dfd1667)[guns](https://guns.lol/vamqz)![IMG_5682](https://github.com/user-attachments/assets/b8d0c47d-82a7-4937-8725-198c9fde351a)
 
 
 
