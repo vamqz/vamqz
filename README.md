@@ -32,7 +32,7 @@ yare yare.. no idea why yall following but thanks
 
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31p7k4lkdecbilvh5rthmgvkujm4&cover_image=true&theme=novatorem&show_offline=true&background_color=b00b69&interchange=true&bar_color_cover=false&bar_color=801a1f)](https://spotify-github-profile.kittinanx.com/api/view?uid=31p7k4lkdecbilvh5rthmgvkujm4&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31p7k4lkdecbilvh5rthmgvkujm4&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=b00b69&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31p7k4lkdecbilvh5rthmgvkujm4&redirect=true)
 
 
 
