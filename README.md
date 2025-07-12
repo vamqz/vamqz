@@ -27,7 +27,7 @@ yare yare.. no idea why yall following but appreciate it
 
 
 
-![IMG_5684](https://github.com/user-attachments/assets/72577599-9fa4-49a6-ad25-22f994a88a48)[rentry](https://rentry.co/phych1c) ♱ [crrd](https://vqmqz.carrd.co) ♱ [guns](https://guns.lol/vamqz) ♱ [straw](https://kira4.straw.page) ♱ [rentry](https://rentry.co/phych1c) ♱ [ata](https://vamqz.atabook.org/)![IMG_5682](https://github.com/user-attachments/assets/b8d0c47d-82a7-4937-8725-198c9fde351a)
+![IMG_5684](https://github.com/user-attachments/assets/72577599-9fa4-49a6-ad25-22f994a88a48)[rentry](https://rentry.co/phych1c) ♱ [crrd](https://vqmqz.carrd.co) ♱ [guns](https://guns.lol/vamqz) ♱ [straw](https://kira4.straw.page) ♱ [ata](https://vamqz.atabook.org/)![IMG_5682](https://github.com/user-attachments/assets/b8d0c47d-82a7-4937-8725-198c9fde351a)
 
 
 
