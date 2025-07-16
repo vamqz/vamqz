@@ -4,7 +4,7 @@
 ⠀⠀
 ⠀⠀
 
-yare yare.. no idea why yall following but appreciate it
+.. no idea why yall following but appreciate it
 
 ⠀⠀⠀⠀
 
