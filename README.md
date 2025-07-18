@@ -6,7 +6,7 @@
 
 .. no idea why yall following but appreciate it
 
-🌙 , ⛔️= sleeping, offtab, afk, etc <ins>w2i</ins>
+🌙 , ⛔️= sleeping, offtab, semi/afk, etc <ins>w2i</ins>
 
 ⠀⠀⠀⠀
 
