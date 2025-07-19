@@ -1,10 +1,10 @@
 <div align="center">
-<img src="https://komarev.com/ghpvc/?username=vamqz&color=710404&style=plastic&label=ㅤstalkers&base=0">
+<img src="https://komarev.com/ghpvc/?username=vamqz&color=800080&style=plastic&label=stalkers&base=0">
 
 ⠀⠀
 ⠀⠀
 
-.. no idea why yall following but appreciate it
+.. no idea why yall following but appreciate it ^_^
 
 🌙 , ⛔️= sleeping, offtab, semi/afk, etc <ins>w2i</ins>
 
@@ -14,22 +14,22 @@
 
 
 
-<img width="590" src="https://github.com/user-attachments/assets/78035d61-2a1d-4784-86f6-4fb6878a926e"/>
+<img width="590" src="https://github.com/user-attachments/assets/d72b0f0a-64f2-4b35-a49f-c32335e8c412"/>
 
 
 ⠀⠀⠀⠀⠀⠀⠀
 
 
-![IMG_5239](https://github.com/user-attachments/assets/8945a207-fc38-4ac1-a140-b208b4ce5a1a)![IMG_5243](https://github.com/user-attachments/assets/544599b3-0c6c-4e30-949a-1b73c566244d)![IMG_5471](https://github.com/user-attachments/assets/1b0b91c1-6788-4ac4-9105-bd9433049da3)
+![IMG_5239](https://github.com/user-attachments/assets/8945a207-fc38-4ac1-a140-b208b4ce5a1a)![IMG_5243](https://github.com/user-attachments/assets/544599b3-0c6c-4e30-949a-1b73c566244d)![princess](https://github.com/user-attachments/assets/194c9c92-22d5-4af1-bdcb-15ab899e1c96)
 
 
 
-![IMG_5244](https://github.com/user-attachments/assets/90ae2553-e727-481a-b094-66102238dbcf)![IMG_5242](https://github.com/user-attachments/assets/40a8ae8a-aee4-4b7c-b867-399d1e544270)![IMG_5241](https://github.com/user-attachments/assets/f8a109d7-a17e-4d95-8a41-062143da1ff3)
+![IMG_5244](https://github.com/user-attachments/assets/90ae2553-e727-481a-b094-66102238dbcf)![angel](https://github.com/user-attachments/assets/283fb6f9-b861-4cf7-a864-1d037154a588)![IMG_5241](https://github.com/user-attachments/assets/f8a109d7-a17e-4d95-8a41-062143da1ff3)
 
 
 
 
-![IMG_5236](https://github.com/user-attachments/assets/a996554e-fbea-4103-99ab-28fe6abda765)[rentry](https://rentry.co/phych1c) ♱ [crrd](https://vqmqz.carrd.co) ♱ [guns](https://guns.lol/vamqz) ♱ [straw](https://kira4.straw.page) ♱ [ata](https://vamqz.atabook.org/)![IMG_5238](https://github.com/user-attachments/assets/9c84e8c4-b2a9-4b37-8c85-923dd50b4ef5)
+![](https://github.com/user-attachments/assets/83ce9973-f014-4802-9722-c2c9bd16e76c) [rentry](https://rentry.co/phych1c) ♱ [crrd](https://vqmqz.carrd.co) ♱ [guns](https://guns.lol/vamqz) ♱ [straw](https://kira4.straw.page) ♱ [ata](https://vamqz.atabook.org/) ![IMG_5238](https://github.com/user-attachments/assets/60d7c147-9482-4dd1-8daf-d37102c78a09)
 
 
 
