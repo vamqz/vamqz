@@ -29,7 +29,7 @@
 
 
 
-![](https://github.com/user-attachments/assets/83ce9973-f014-4802-9722-c2c9bd16e76c) [rentry](https://rentry.co/phych1c) ♱ [crrd](https://vqmqz.carrd.co) ♱ [guns](https://guns.lol/vamqz) ♱ [straw](https://kira4.straw.page) ♱ [ata](https://vamqz.atabook.org/) ![IMG_5238](https://github.com/user-attachments/assets/60d7c147-9482-4dd1-8daf-d37102c78a09)
+![](https://github.com/user-attachments/assets/83ce9973-f014-4802-9722-c2c9bd16e76c) [rentry](https://rentry.co/psych1c) ♱ [crrd](https://vqmqz.carrd.co) ♱ [guns](https://guns.lol/vamqz) ♱ [straw](https://kira4.straw.page) ♱ [ata](https://vamqz.atabook.org/) ![IMG_5238](https://github.com/user-attachments/assets/60d7c147-9482-4dd1-8daf-d37102c78a09)
 
 
 
