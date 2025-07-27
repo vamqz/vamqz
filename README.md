@@ -35,7 +35,7 @@ tho <ins>feel free</ins> to <ins>sit</ins> with me or <ins>c+h</ins>⠀ ![IMG_63
 
 
 
-![IMG_6233](https://github.com/user-attachments/assets/cd0f874c-3c03-4541-afd3-3502b6eb5f1c) [rentry](https://rentry.co/psych1c) ♱ [crrd](https://vqmqz.carrd.co) ♱ [guns](https://guns.lol/vamqz) ♱ [straw](https://kira4.straw.page) ♱ [ata](https://vamqz.atabook.org/) ![IMG_6234](https://github.com/user-attachments/assets/1ac0ddc0-6306-4f07-a7b5-37dcc59c9256)
+![IMG_6233](https://github.com/user-attachments/assets/cd0f874c-3c03-4541-afd3-3502b6eb5f1c) [rentry](https://rentry.co/itamio) ♱ [crrd](https://vqmqz.carrd.co) ♱ [guns](https://guns.lol/vamqz) ♱ [straw](https://kira4.straw.page) ♱ [ata](https://vamqz.atabook.org/) ![IMG_6234](https://github.com/user-attachments/assets/1ac0ddc0-6306-4f07-a7b5-37dcc59c9256)
 
 
 
