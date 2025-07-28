@@ -9,7 +9,7 @@ no idea why yall following but appreciate it⠀ ![IMG_6303](https://github.com/u
 
 🌙 , ⛔️= sleeping, offtab, semi/afk, etc <ins>w2i</ins>
 
-if my <ins>pony</ins> is <ins>sleeping</ins> in <ins>pony town</ins> = im <ins>sleeping irl</ins>
+if my <ins>pony</ins> is <ins>sleeping</ins> in <ins>pony town</ins> = im likely <ins>sleeping irl</ins>
 
 however <ins>feel free</ins> to <ins>sit</ins> with me or <ins>c+h</ins> always⠀ ![IMG_6302](https://github.com/user-attachments/assets/0333ffa4-38f6-4fa2-bac9-89e9a2550934)
 
